@@ -2,7 +2,7 @@
 - 👀 I’m interested in opictal 3D Metrology
 - 📫 How to reach me :
 
-T +41 56 544 22 73 
+T +41 56 544 22 73
 www.metiris.ch
 
 metiris GmbH
