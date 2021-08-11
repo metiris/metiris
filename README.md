@@ -3,11 +3,15 @@
 - 📫 How to reach me :
 
 T +41 56 544 22 73
+
 www.metiris.ch
 
 metiris GmbH
+
 Wambisterstrasse 1
+
 5412 Gebenstorf
+
 Switzerland
 
 <!---
